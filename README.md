@@ -1,1 +1,1 @@
-# Feh-rv-ziov--projekt-chess
+# Feherviziova-projekt-chess
